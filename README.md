@@ -1,0 +1,1 @@
+# Ghana-Elections-1996-to-2020
